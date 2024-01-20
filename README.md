@@ -1,2 +1,2 @@
 # CV-James-Medina-V
-Presentación de mi cv
+Presentación de mi CV
